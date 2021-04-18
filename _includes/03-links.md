@@ -1,1 +1,2 @@
-Replace this with a link to your a GitHub or social media profile.
+[Portfolio](isabelperucho.com)
+[Temujin](temujindrama.wixsite.com/home)
